@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wwwirfan
 - 👀 I’m interested in Cybersecurity
-- 🌱 I’m currently learning cybersecurity and looking for MS an degree program in Cybersecurity online with a full scholarship.
+- 🌱 I’m currently working(doing job) in cybersecurity and looking for MS an degree program in Cybersecurity online with a full scholarship.
 - 💞️ I’m looking to collaborate on security and advanced technologies to make cybersecurity more effective.
 - 📫 How to reach me: You can mail me(mirfan01122@gmail.com)
 
